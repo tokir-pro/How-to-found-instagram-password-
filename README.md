@@ -1,2 +1,2 @@
 # How-to-found-instagram-password-
-How to hack instagram id password 
+How to hack instagram id passwor
